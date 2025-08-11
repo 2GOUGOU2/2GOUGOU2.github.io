@@ -1,16 +1,23 @@
+- 二〇二二年优秀学生奖学金铜奖，2022.12
 
-- Outstanding Graduate Award (CUMT), 2025.
+- 第十四届全国大学生数学竞赛（非数学类）二等奖，2023.01
 
-- National Scholarship for Graduate Student, 2024.
+- 中国科学技术大学第三届实验室安全知识竞赛一等奖，2023.04
 
-- First-Prize Scholarship (CUMT), 2024.
+- 唐仲英德育奖学金，2023.05
 
-- First-Prize Scholarship (CUMT), 2023.
+- 自然科学类电磁学小论文竞赛一等奖，2023.07
 
-- Freshman Scholarship (CUMT), 2022.
+- 第十五届全国大学生数学竞赛（数学类）一等奖，2023.12
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
+- 二〇二三年江淮蔚来汽车奖学金，2024.01
 
-- First-Prize Enterprise Scholarship (CUMT), 2020.
+- 杨元庆教育基金奖学金，2024.03
 
-- First-Prize Scholarship (CUMT), 2019.
+- 2024“九章杯”大学生数学竞赛专业组二等奖，2024.04
+
+- 国家奖学金，2024.12
+
+- 2025年丘成桐大学生数学竞赛个人赛（应用与计算数学方向）笔试优胜奖，2025.06
+
+- 2025年丘成桐大学生数学竞赛团体赛（应用与计算数学方向）决赛优胜奖，2025.06
