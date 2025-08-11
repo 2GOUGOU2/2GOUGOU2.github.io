@@ -1,5 +1,7 @@
 
 
+[![2GOUGOU2](https://img.shields.io/badge/2GOUGOU2-github-blue?logo=github)](https://github.com/2GOUGOU2)
+
 刘天齐目前在<strong>上海交通大学人工智能学院（SAI）</strong>交流学习
 
 #### Contact
