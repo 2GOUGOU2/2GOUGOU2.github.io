@@ -4,13 +4,13 @@
 
 刘天齐目前在<strong>上海交通大学人工智能学院（SAI）</strong>交流学习
 
-#### Contact
+#### 联系方式
 
 Email: pb22000070@mail.ustc.edu.cn
 
-#### Education
-本科 中国科学技术大学 少年班学院 应用数学专业 华罗庚英才班 2022-至今
+#### 教育背景
+本科 <strong>中国科学技术大学 少年班学院</strong> 应用数学专业 华罗庚英才班 2022-至今
 
-#### Research Interests
+#### 研究方向
 应用数学与人工智能
 
